@@ -2,7 +2,7 @@
 
 ## Frontend developer
 
-  #### I am an experienced front-end developer with more than 5 years of professional experience. My career path started on a freelance platform, and I am currently working as a front-end developer at
+  #### I am an experienced front-end developer with more than 5 years of professional experience. My career path started on a freelance platform, and I am currently working as a front-end developer
 
 
 
